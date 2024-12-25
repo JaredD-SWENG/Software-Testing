@@ -2,4 +2,4 @@
 
 Example:
 
-![Lab11_JaredDaniel](https://github.com/user-attachments/assets/0af3695e-38f1-4473-a9ca-12420c6a5d5a)
+![Lab11_JaredDaniel](https://github.com/user-attachments/assets/04dd016e-14eb-4de7-8398-62eca86dbc89)
